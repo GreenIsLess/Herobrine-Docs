@@ -1,2 +1,2 @@
-# Herobrine-Docs
-For The Idiots That Don't Know How To Use Fricking Herobrine Signup.
+# Herobrine Docs
+For The God Fucking Idiots That Don't Know How To Use Fricking Herobrine Signup.
